@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @brxbbzy a.k.a Bryanna Cooke
 - 👀 I’m interested in coding, UX/UI design, and art.
 - 🌱 I’m currently learning Java, Python, C++, and C#
-- 🔍 I’m looking for internship opportunities!🔍
+- 🔍 I’m looking for Full-time opportunities!🔍
 - 📫 How to reach me: Bryannacooke@aol.com 
